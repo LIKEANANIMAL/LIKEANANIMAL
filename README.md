@@ -1,8 +1,12 @@
 <div align="center"> 
  
- ![](https://64.media.tumblr.com/a60848e0f0e76aac9c08c6134756d097/tumblr_pbjhwsm3M81vvoswjo1_640.pnj)
+ ![](https://files.catbox.moe/fdiz3f.gif)
+# BIRDS OF A FEATHER
 
-I really like Ogata Hyakunosuke.
+Eve   ⋮  It / It's　　 　  
+
+𐙚　　I really like Evil Morty & Rick Prime.   　 ₊
+
 
 https://intheflesh.atabook.org/
 

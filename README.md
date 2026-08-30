@@ -2,8 +2,9 @@
  
  ![](https://files.catbox.moe/fdiz3f.gif)
 # BIRDS OF A FEATHER
+Currently Fronting:
 
-Eve   ⋮  It / It's　　 　  
+**Eve   ⋮  It / It's**　　 　  
 
 𐙚　　I really like Evil Morty & Rick Prime.   　 ₊
 

@@ -8,6 +8,7 @@ Currently Fronting:
 
 𐙚　　I really like Evil Morty & Rick Prime.   　 ₊
 
+![](https://64.media.tumblr.com/06c4b2306d1ac2ebdb15d4b975575531/1d687863f8d05841-e4/s250x400/72480350906d1f46f73705194039b45da925b130.gifv)
 
 https://intheflesh.atabook.org/
 
